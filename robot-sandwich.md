@@ -15,7 +15,7 @@ Make sure the turkey bacon is balanced on the tomato that is over the lettuce
 ### 9. Take the other slice of bread and place the widest, flattest part of the bread on the sliced turkey bacon
 ### 10. Place hands gently on the sandwich and give a gentle press down to ensure everything stays put 
 ### 11.Use knife to cut sandwich up and down then left to right. We are cutting sandwich into as even as possible squares. 
-### 12. Place sandwich on red plate
+### 12. Done when sandwich placed on red plate
 
 ## ENJOY! 
 
